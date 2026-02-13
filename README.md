@@ -16,6 +16,7 @@
 hey hey heyyyyyy im **soda** or *eden* im a queer thing browsing by yayyyyy.
 im lik autistic and i have adhd ...... and numerous other things im not inclined to talk abt atm .
 interact with extremeee caution do not make flirting or sexual jokes abt me unless **i know** youuu
+alsooo dont be a fucking dick to people without a valid reason unless u have some serious issues and apologize in the end
 
 im very attached 2 the character delice from piafos i think she is so me , um im not very okay in the head keep that in mind pls
 i like vocaloid and piafos alotttt lotttt
